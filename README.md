@@ -1,0 +1,6 @@
+# Projeto_Sculptor
+
+### Participantes:
+LUIZ FELIPE DIAS SILVA 
+
+VIVIANE STEPHANE PINHEIRO NOVO
